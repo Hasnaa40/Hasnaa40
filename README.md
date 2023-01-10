@@ -126,7 +126,6 @@ My CV  https://drive.google.com/file/d/1D0nd5HfsUpsYtwEnpo7uv_kwdwpJ6FGr/view?us
 <br/>  
 
 
-## Recent Blog Posts  
   
 
 <br/>  
